@@ -11,7 +11,7 @@ Aqui você encontra uma coleção incrível de personagens das suas franquias fa
 
 ## 🛒 Onde comprar
 Confira todos os produtos disponíveis diretamente no **Mercado Livre**:  
-👉 [Acesse o catálogo aqui]([https://www.mercadolivre.com.br/](https://produto.mercadolivre.com.br/MLB-5919384424-blokees-cavaleiros-do-zodiaco-caixa-surpresa-_JM))
+👉 [Acesse o catálogo aqui](https://produto.mercadolivre.com.br/MLB-5919384424-blokees-cavaleiros-do-zodiaco-caixa-surpresa-_JM)
 
 ---
 
